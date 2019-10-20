@@ -20,7 +20,7 @@ ALWAYS UPDATED FROM(CHINEESE<INDONISIANS<ARAB...)
 
 SEE THIS YOUTUBE:
 
-# https://youtu.be/X3uGa0Qddtk
+https://youtu.be/X3uGa0Qddtk
 
 
 # FOLLOW US:
