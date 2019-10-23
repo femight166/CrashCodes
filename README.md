@@ -1,24 +1,29 @@
-# CRASHCODES
-CRASH CODES FOR WHATSAPP....
+ - - - - - - U҉N҉D҉E҉R҉C҉O҉D҉E҉- - - - - -
 
-TESTED BY UNDERCODE TESTING COMPANIE (U.T.C)
+# CRASHCODES
+ℂℝ𝔸𝕊ℍ ℂ𝕆𝔻𝔼𝕊 𝔽𝕆ℝ 𝕎ℍ𝔸𝕋𝕊𝔸ℙℙ 𝔸𝕃𝕃 𝕍𝕖𝕣𝕤𝕚𝕠𝕟𝕤: 
+
+TESTED BY UNDERCODE TESTING COMPANY (U.T.C)
 
 #HOW TO SEND?
 
 CRASH CODE:
 
-1)POWERFULL CRASH CODES 
+POWERFULL CRASH CODES 
 
 ALWAYS UPDATED FROM(CHINEESE<INDONISIANS<ARAB...)
 
-# TO JOIN OUR WHATSAPP GROUPES FOR FREE KNOWLEDGE MAIL US AT :
-
-
- UNDERCODETESTING@HOTMAIL.COM
-
 # HOW TO CRASH WHATSAPP?
 
-SEE THIS YOUTUBE:
+1) Upload it to iCloud Drive, Dropbox etc.. (just if you want to keep it)
+
+2)Share the file to send it via Message
+
+3)Send it to your victim
+
+4) Wait for the victim click on it, the Message application freeze and don’t work anymore
+
+𝔽𝕠𝕣 𝔼𝕩𝕒𝕞𝕡𝕝𝕖 𝕊𝔼𝔼 𝕋ℍ𝕀𝕊 𝕐𝕆𝕌𝕋𝕌𝔹𝔼:
 
 https://youtu.be/X3uGa0Qddtk
 
@@ -36,9 +41,10 @@ https://youtu.be/X3uGa0Qddtk
 [Email](mailto:UndercodeTesting@hotmail.com)
 
 
-# Bitcoint Donation:
+# TO JOIN OUR WHATSAPP GROUPES FOR FREE KNOWLEDGE MAIL US AT :
 
-1FBPoRY8xcD373wA5MuiuMy3pwgqeFsnbk
+UNDERCODETESTING@HOTMAIL.COM
 
----------UNDERCODE TESTING----------
+
+ - - - - - - U҉N҉D҉E҉R҉C҉O҉D҉E҉- - - - - -
 
