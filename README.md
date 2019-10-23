@@ -17,13 +17,13 @@ ALWAYS UPDATED FROM(CHINEESE<INDONISIANS<ARAB...)
 
 1) Upload it to iCloud Drive, Dropbox etc.. (just if you want to keep it)
 
-2)Share the file to send it via Message
+2) Share the file to send it via Message
 
-3)Send it to your victim
+3) Send it to your victim
 
 4) Wait for the victim click on it, the Message application freeze and don’t work anymore
 
-𝔽𝕠𝕣 𝔼𝕩𝕒𝕞𝕡𝕝𝕖 𝕊𝔼𝔼 𝕋ℍ𝕀𝕊 𝕐𝕆𝕌𝕋𝕌𝔹𝔼:
+ 𝔽𝕠𝕣 𝔼𝕩𝕒𝕞𝕡𝕝𝕖 𝕊𝔼𝔼 𝕋ℍ𝕀𝕊 𝕐𝕆𝕌𝕋𝕌𝔹𝔼:
 
 https://youtu.be/X3uGa0Qddtk
 
