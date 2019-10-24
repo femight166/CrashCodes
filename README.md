@@ -21,7 +21,7 @@ ALWAYS UPDATED FROM(CHINEESE<INDONISIANS<ARAB...)
 
 3) Send it to your victim
 
-4) Wait for the victim click on it, the Message application freeze and don’t work anymore
+4) Wait for the victim to open Whatsapp, the Message application freeze and don’t work anymore
 
  𝔽𝕠𝕣 𝔼𝕩𝕒𝕞𝕡𝕝𝕖 𝕊𝔼𝔼 𝕋ℍ𝕀𝕊 𝕐𝕆𝕌𝕋𝕌𝔹𝔼:
 
